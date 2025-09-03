@@ -19,4 +19,4 @@
 
 ## 🔍 Keywords
 
-graphic design community, coreldraw tips, design tutorials, creative tools, user inspiration
+coreldraw tutorials, graphic design tips, 2025 design guides, creative resources, design community, art tools, pc mac support, beginner lessons, project inspiration, 2025 design trends, user network, editing techniques, workflow ideas, creative growth, design hub, community insights, 2025 innovations, open resources
